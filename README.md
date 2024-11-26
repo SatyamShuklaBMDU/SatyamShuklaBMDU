@@ -32,7 +32,7 @@ Here’s a snapshot of my expertise:
 
 ## Let's Connect 🌐  
 Feel free to reach out or collaborate on exciting projects:  
-- 💼 LinkedIn: [satyam-shukla-46925021b](#satyam-shukla-46925021b/)  
+- 💼 LinkedIn: [satyam-shukla-46925021b](https://www.linkedin.com/in/satyam-shukla-46925021b/)  
 - 📫 Email: [shuklasatyam23056@gmail.com](mailto:shuklasatyam23056@gmail.com)  
 
 ---
